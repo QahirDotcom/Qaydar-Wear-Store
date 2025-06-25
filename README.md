@@ -1,0 +1,1 @@
+# Qaydar-Wear-Store
